@@ -6,4 +6,4 @@ Intern ID :- SMI69145
 
 Duration :- May 31,2024 to July 31,2024
 
-E--Mail :- devilashok092@gmail.com
+E--Mail :- ashokofficial690@gmail.com
